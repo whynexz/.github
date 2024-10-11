@@ -12,4 +12,4 @@ My Fathers name is Joy Biswas.
 That's it that is all about me.**
 
 ## 3. How to get in
-**  to get in go [Apply Room]() and create a issue with the invitation format. <br> fill the form and submit. <br> After this the head z(the person incharge of managing members)will see your form and deside.If the desition is not made by 1 week it will be handed to the owners
+**To get in go [Apply Room]() and create a issue with the invitation format. <br> fill the form and submit. <br> After this the head z (the person incharge of managing members) will see your form and deside.If the desition is not made by 1 week it will be handed to the owners**
